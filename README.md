@@ -1,3 +1,1 @@
-### Hi there 👋
-
-College account, trying my best :)
+### College account, trying my best :)
